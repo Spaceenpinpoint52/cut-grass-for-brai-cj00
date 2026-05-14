@@ -1,4 +1,4 @@
-#  
+#  Experience cut grass for brainroots like never before with cut grass for brainroots premium Scripts, the #1 Script. Includes god mode and no cooldown
 
 
 
